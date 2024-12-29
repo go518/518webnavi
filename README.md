@@ -1,6 +1,6 @@
-# WebNav Hub - PornNav
+# 518webnavi
 
-# WebNav Hub - LinkHub PornNav导航
+# 518webnavi导航
 
 [English](#english) | [中文](#中文)
 
